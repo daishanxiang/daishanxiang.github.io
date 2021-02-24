@@ -1,6 +1,5 @@
 # 戴善翔
 
-- 手机：18020171892
 - Email：393221510@qq.com
 - 微信：Orz__1993
 - Blog：http://blog.funygo.com/
